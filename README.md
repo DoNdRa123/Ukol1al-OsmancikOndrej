@@ -1,1 +1,0 @@
-# jendorozm-rn-pole
